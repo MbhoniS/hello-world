@@ -1,0 +1,1 @@
+understanding the work fully is more important than  rushing through to complete, because once a professional, one needs to understand and be able to explain their work fully.
